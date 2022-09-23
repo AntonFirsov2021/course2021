@@ -1,10 +1,2 @@
 # courseOne
-# courseOne
-# courseOne
-# courseOne
-# courseOne
-# courseOne
-# courseOne
-# GBcource1
-# GBcource1
 # Lesson
